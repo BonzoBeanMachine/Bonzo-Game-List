@@ -2,7 +2,7 @@
 
 Here is a list of the lesser known games I streamed:
 
-STRATO-SPHERE: 
+STRATO-SPEAR: https://rittzler.itch.io/stratospear
 
 Bat Boy: https://store.steampowered.com/app/1709350/Bat_Boy/
 
