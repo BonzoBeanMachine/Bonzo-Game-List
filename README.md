@@ -53,3 +53,12 @@ https://coding-kricket.itch.io/the-not-so-ugly-duckling
 
 Raid Tomber
 https://awfy.itch.io/raid-tomber
+
+Rolly Rodent
+https://kekitopu.itch.io/rolly-rodent
+
+Don't get Cooked!
+https://quinnstergames.itch.io/dontgetcooked
+
+Gun'n'Run
+https://asodiacayve.itch.io/gunnrun
