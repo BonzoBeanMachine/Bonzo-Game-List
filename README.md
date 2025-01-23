@@ -75,3 +75,6 @@ https://quinnstergames.itch.io/dontgetcooked
 
 Gun'n'Run:
 https://asodiacayve.itch.io/gunnrun
+
+Super Roboy
+https://store.steampowered.com/app/1756020/Super_Roboy/
